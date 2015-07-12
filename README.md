@@ -1,0 +1,2 @@
+# decentbet.github.io
+Pages
